@@ -1,4 +1,5 @@
 
+![Screenshot (218)](https://user-images.githubusercontent.com/75210337/122256026-4d55bb80-ceec-11eb-885d-acf40e06990c.png)
 
 
 <h1 align="center">Hi 👋, I'm Sanskriti Negi</h1>
