@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **sanskritinegi2401@gmail.com**
 
-- ⚡ Fun fact **: Trying to be like Chandler :)**
+- ⚡ Fun fact **: Sometimes I act like Phoebe :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
